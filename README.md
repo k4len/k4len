@@ -21,7 +21,7 @@
 <br>★ Music : new jeans , txt , vocaloid , zb1 , city pop , gulu gulu , mafumafu , malice mizer, rwby <br>
 <br>★ Games : twst , overwatch , pjsekai , hsr , botw + totk , omori , splatoon , persona 5 <br>
 <br>★ Novels : mdzs , svsss , tgcf , little mushroom , orv , tyk , plsplspls give book/novel reccs  <br>
-<br>★ Other : marine life , art books , vinyls , figures , CATSSS <br>
+<br>★ Other : marine life , art books , vinyls + cds , figures , CATSSS <br>
 
 
 
