@@ -8,5 +8,3 @@
 ---
 [![](https://visitcount.itsvg.in/api?id=k4len&icon=7&color=6)](https://visitcount.itsvg.in)
 
-![image](https://github.com/k4len/k4len/assets/141467087/0c6f8be3-374a-4f60-bc91-dbdc27ab5087)
-
