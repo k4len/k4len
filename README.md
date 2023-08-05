@@ -6,7 +6,8 @@
 [![Pinterest](https://img.shields.io/badge/Pinterest-%23E60023.svg?logo=Pinterest&logoColor=white)](https://pinterest.com/@k4lenn) [![TikTok](https://img.shields.io/badge/TikTok-%23000000.svg?logo=TikTok&logoColor=white)](https://tiktok.com/@k1lrzr) [![Twitter](https://img.shields.io/badge/Twitter-%231DA1F2.svg?logo=Twitter&logoColor=white)](https://twitter.com/lcvlix) 
 
 ---
-## ☆ Interests :
+
 <img align="right" alt="Coding" src="https://github.com/k4len/k4len/assets/141467087/f43802c3-3a53-4bd8-8447-6fa9b1e04e80" width="600" height="300">
+## ☆ Interests :
 <br>★ <br>
 
