@@ -6,7 +6,7 @@
 <br>　 <br>
 <br>　 <br>
 
-<img align="right" alt="Coding" src="https://github.com/k4len/k4len/assets/141467087/8459951c-d856-4796-a792-188d804920fa" width="150" height="275">
+<img align="right" alt="Coding" src="https://github.com/k4len/k4len/assets/141467087/8459951c-d856-4796-a792-188d804920fa" width="300" height="300">
 
 
 ## ☆ Interests :
