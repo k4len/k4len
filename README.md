@@ -1,4 +1,5 @@
-#  ☆ About Me :
+
+<img src="(https://media.tenor.com/L5KTGCW_CSoAAAAC/idia-shroud-twisted-wonderland.gif)" alt="Idia">#  ☆ About Me :
 ★ offtab/afk a lot of the time so feel free to whisper to interact so i can see it  ପ(๑•ᴗ•๑)ଓ ♡<br><br>★ DNI any southpark/dsmp fans + dont be a weirdo pls<br><br>★ plspls PLEASEE interact if we have similar interests ˙ᵕ˙
 
 
