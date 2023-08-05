@@ -1,18 +1,3 @@
-<!DOCTYPE html>
-<html>
-<head>
-<style>
-img {
-  width: 100%;
-}
-</style>
-</head>
-<body>
-
-<img src="![image](https://github.com/k4len/k4len/assets/141467087/ea9fed6a-bc9c-4dd2-90f9-0e8cfdff60a8)" alt="hi" width="128" height="128">
-
-</body>
-</html>
 #  ☆ Hi ponytownians..
 ★ offtab/afk a lot of the time so feel free to whisper to interact so i can see it  ପ(๑•ᴗ•๑)ଓ ♡<br><br>★ DNI any southpark/dsmp fans + dont be a weirdo pls<br><br>★ plspls PLEASEE interact if we have similar interests ˙ᵕ˙
 
