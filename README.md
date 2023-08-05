@@ -1,5 +1,5 @@
 
-<img src="![image](https://github.com/k4len/k4len/assets/141467087/0ed813e0-18ad-4829-b8c2-7ededd0a753e)" alt="Idia">#  ☆ About Me :
+<img src="![image](https://github.com/k4len/k4len/assets/141467087/0ed813e0-18ad-4829-b8c2-7ededd0a753e)">#  ☆ About Me :
 ★ offtab/afk a lot of the time so feel free to whisper to interact so i can see it  ପ(๑•ᴗ•๑)ଓ ♡<br><br>★ DNI any southpark/dsmp fans + dont be a weirdo pls<br><br>★ plspls PLEASEE interact if we have similar interests ˙ᵕ˙
 
 
