@@ -9,12 +9,4 @@
 ---
 [![](https://visitcount.itsvg.in/api?id=k4len&icon=7&color=6)](https://visitcount.itsvg.in)
 
- <style type="text/css">
-    .image-left {
-      display: block;
-      margin-left: auto;
-      margin-right: auto;
-      float: right;
-    }
-    </style>
-
+![Some Title]![idia-shroud](https://github.com/k4len/k4len/assets/141467087/25282018-c600-4e53-98b7-0e92351f8010){:style="float: right;margin-right: 7px;margin-top: 7px;"}
