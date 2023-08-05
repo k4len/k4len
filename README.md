@@ -15,5 +15,5 @@
 </div>
 <div style="clear: left;">
     <p style="float: left;"><img src="http://placekitten.com/g/200/200" height="200" width="200" border="1px"></p>
-    Text Text Text Text Text Text Text Text Text Text Text Text Text Text Text Text Text Text Text
+    <p style="float:right">Text Text Text Text Text Text Text Text Text Text Text Text Text Text Text Text Text Text Text</p>
 </div>
