@@ -9,7 +9,7 @@
 ---
 [![](https://visitcount.itsvg.in/api?id=k4len&icon=7&color=6)](https://visitcount.itsvg.in)
 
-<img src="/path/to/image.png" align="left" width="200px"/>
+<img src="[![](https://visitcount.itsvg.in/api?id=k4len&icon=7&color=6)](https://visitcount.itsvg.in)" align="left" width="200px"/>
 some text floating around the image
 
 <br clear="left"/>
