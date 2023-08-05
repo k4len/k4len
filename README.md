@@ -9,7 +9,4 @@
 ---
 [![](https://visitcount.itsvg.in/api?id=k4len&icon=7&color=6)](https://visitcount.itsvg.in)
 
-<div style="float: right">
-    ![idia-shroud](https://github.com/k4len/k4len/assets/141467087/ecea5d90-d25a-45ee-8b00-faf99cdbed07)
-(http://placehold.it/85x85 "Title")
-</div>
+<img align="right" width="100" height="100" src="![idia-shroud](https://github.com/k4len/k4len/assets/141467087/11aae982-61c2-46f9-994a-94f1b39595fc)">
