@@ -9,4 +9,5 @@
 ---
 [![](https://visitcount.itsvg.in/api?id=k4len&icon=7&color=6)](https://visitcount.itsvg.in)
 
-<img align="right" width="100" height="100" src="![idia-shroud](https://github.com/k4len/k4len/assets/141467087/11aae982-61c2-46f9-994a-94f1b39595fc)">
+<img align="left" width="100" height="100" src="![idia-shroud](https://github.com/k4len/k4len/assets/141467087/d4f8663d-2d9c-4cfd-a149-8ef7828b7dea)
+">
