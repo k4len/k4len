@@ -19,7 +19,7 @@
 <img align="right" alt="Coding" src="https://github.com/k4len/k4len/assets/141467087/3fc6140c-f310-4646-9edb-b0cb949092bb" width="250" height="300">
 <br>★ Main Interests ATM : link click , twst , orv , bocchi , sk8 , mxtx , rwby , tbhk , eva , bsd , csm<br>
 <br>★ Music : new jeans , txt , vocaloid , zb1 , city pop , gulu gulu , mafumafu , malice mizer, rwby <br>
-<br>★ Games : twst , overwatch , pjsekai , hsr , botw + totk , omori , splatoon , persona 5 <br>
+<br>★ Games : twst , overwatch , pjsekai , hypmic , hsr , botw + totk , omori , splatoon , persona 5 <br>
 <br>★ Novels : mdzs , svsss , tgcf , little mushroom , orv , tyk , plsplspls give book/novel reccs  <br>
 <br>★ Other : marine life , art books , vinyls + cds , figures , CATSSS <br>
 <br>★ I have more stuff that i like that has not been listed here so BE MY FRIENDF PLSPLSPLSPSL <br>
