@@ -22,7 +22,7 @@
 <br>★ Games : twst , overwatch , pjsekai , hsr , botw + totk , omori , splatoon , persona 5 <br>
 <br>★ Novels : mdzs , svsss , tgcf , little mushroom , orv , tyk , plsplspls give book/novel reccs  <br>
 <br>★ Other : marine life , art books , vinyls + cds , figures , CATSSS <br>
-
+<br>★ I have more stuff that i like that has not been listed here so BE MY FRIENDF PLSPLSPLSPSL <br>
 
 
 
