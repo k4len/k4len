@@ -5,7 +5,7 @@
 <br>★ DNI any dsmp fans + basic dni criteria. dont be a weirdo pls<br>
 <br>★ plspls PLEASEE interact if we have similar interests , i dont bite !! ˙ᵕ˙
 
-<br>★ leave a note on my <a href="https://www.yourworldoftext.com/~kalkalkal/">guest page</a> !!<br>
+<br>★ check out my <a href="https://www.yourworldoftext.com/~kalkalkal/">strawpage</a> !!<br>
 
 
  [![Pinterest](https://img.shields.io/badge/Pinterest-%23E60023.svg?logo=Pinterest&logoColor=white)](https://pinterest.com/@k4lenn) [![TikTok](https://img.shields.io/badge/TikTok-%23000000.svg?logo=TikTok&logoColor=white)](https://tiktok.com/@k1lrzr) [![Twitter](https://img.shields.io/badge/Twitter-%231DA1F2.svg?logo=Twitter&logoColor=white)](https://twitter.com/lcvlix) 
@@ -17,8 +17,8 @@
 
 ## ☆ Interests ₍ᐢ. .ᐢ₎ :
 <img align="right" alt="Coding" src="https://github.com/k4len/k4len/assets/141467087/3fc6140c-f310-4646-9edb-b0cb949092bb" width="250" height="300">
-<br>★ Main Interests ATM : link click , twst , orv , bocchi , sk8 , mxtx , rwby , tbhk , eva , bsd , csm<br>
-<br>★ Music : new jeans , txt , vocaloid , zb1 , city pop , gulu gulu , mafumafu , malice mizer, rwby <br>
+<br>★ Main Interests ATM : link click , twst , orv , nitro+chiral , naruto , mxtx, hypmic<br>
+<br>★ Music : new jeans , txt , vocaloid , zb1 , city pop , gulu gulu , mafumafu , malice mizer + <br>
 <br>★ Games : twst , overwatch , pjsekai , hypmic , hsr , botw + totk , omori , splatoon , persona 5 <br>
 <br>★ Novels : mdzs , svsss , tgcf , little mushroom , orv , tyk , plsplspls give book/novel reccs  <br>
 <br>★ Other : marine life , art books , vinyls + cds , figures , CATSSS <br>
