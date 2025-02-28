@@ -5,14 +5,13 @@
 <br>★ DNI any dsmp fans + basic dni criteria. dont be a weirdo pls<br>
 <br>★ plspls PLEASEE interact if we have similar interests , i dont bite !! ˙ᵕ˙
 
-<br>★ check out my <a href="(https://4jiyn.straw.page/)">strawpage</a> !!<br>
+<br>★ check out my <a href="[https://4jiyn.straw.page/]">strawpage</a> !!<br>
 
 
  [![Pinterest](https://img.shields.io/badge/Pinterest-%23E60023.svg?logo=Pinterest&logoColor=white)](https://pinterest.com/@k4lenn) [![TikTok](https://img.shields.io/badge/TikTok-%23000000.svg?logo=TikTok&logoColor=white)](https://tiktok.com/@k1lrzr) 
 
 <br>　  <br>
 <br>　  <br>
-
 
 
 ## ☆ Interests ₍ᐢ. .ᐢ₎ :
