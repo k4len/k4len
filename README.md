@@ -3,7 +3,7 @@
 <br>★ pan , hispanic , libra<br>
 <br>★ offtab/afk a lot of the time so feel free to whisper to interact so i can see it  ପ(๑•ᴗ•๑)ଓ ♡<br>
 <br>★ DNI any dsmp fans + basic dni criteria. dont be a weirdo pls<br>
-<br>★ plspls PLEASEE interact if we have similar interests , i dont bite !! ˙ᵕ˙
+<br>★ plspls PLEASEE interact if we have similar interests !! ˙ᵕ˙
 
 <br>★ check out my <a href="https://4jiyn.straw.page/">strawpage</a> !!<br>
 
