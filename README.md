@@ -17,8 +17,8 @@
 ## ☆ Interests ₍ᐢ. .ᐢ₎ :
 <img align="right" alt="Coding" src="https://github.com/k4len/k4len/assets/141467087/3fc6140c-f310-4646-9edb-b0cb949092bb" width="250" height="300">
 <br>★ Main Interests ATM : link click , twst , orv , nitro+chiral , naruto , mxtx, hypmic<br>
-<br>★ Music : new jeans , txt , vocaloid , zb1 , city pop , gulu gulu , mafumafu , malice mizer + <br>
-<br>★ Games : twst , dmmd, overwatch , pjsekai , hypmic , hsr , botw + totk , splatoon , persona 5<br>
+<br>★ Music : the marias , txt , vocaloid , zb1 , city pop , vkei , MOREEEEEE + <br>
+<br>★ Games : twst , dmmd, overwatch , pjsekai , hypmic , hsr , botw + totk , pokemon , persona 5<br>
 <br>★ Novels : mdzs , svsss , tgcf , little mushroom , orv , tyk , plsplspls give book/novel reccs  <br>
 <br>★ Other : marine life , art books , vinyls + cds , figures , CATSSS <br>
 <br>★ I have more stuff that i like that has not been listed here so BE MY FRIENDF PLSPLSPLSPSL <br>
